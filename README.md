@@ -27,6 +27,7 @@
 
 ##### 1.个人网盘：
 
-[`模板链接`](/#/s/3GiK) +  `/#/s/3GiK`,密码：dm2hyy
+[`模板链接`](https://hanbaoaaa.xyz/index.php/archives/125/k.html) +  `/#/s/3GiK`,密码：dm2hyy
 
 ##### 2.可以去我的群里下：1070262019
+
